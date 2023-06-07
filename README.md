@@ -68,7 +68,7 @@ _𝗠𝗲𝘀𝘀𝗮𝗴𝗲 𝗺𝗲 𝗼𝗻 𝘁𝗲𝗹𝗲𝗴𝗿𝗮𝗺
 
 - <b>[ᴍʏ ᴛᴇʟᴇɢʀᴀᴍ](http://t.me/shivam_jaiswal001)  ➻  [ ʏᴏᴜᴛᴜʙᴇ](https://youtube.com/@Shivam_jaiswal001) </b>
 
-- <b>[🇧𝙻𝙰𝚉𝙴](http://t.me/GitExpert)  ➻  [ ʀᴇᴘᴏ ʟɪɴᴋ](https://github.com/Team-Deadly/DEADLY-SPAMBOT) </b>
+- <b>[𝐀xᴇɴ](https://t.me/PyXen)  ➻  [ ʀᴇᴘᴏ ʟɪɴᴋ](https://github.com/ItZxSTaR/XBOTS) </b>
 
  <b>ᴀɴᴅ ᴀʟʟ [ᴛʜᴇ ᴄᴏɴᴛʀɪʙᴜᴛᴏʀs](https://github.com/Shivam892483/SpambotV2/graphs/contributors) ᴡʜᴏ ʜᴇʟᴩᴇᴅ ɪɴ ᴍᴀᴋɪɴɢ sᴘᴀᴍ ✘ ʙᴏᴛ ᴜsᴇғᴜʟ & ᴩᴏᴡᴇʀғᴜʟ 🖤 </b>
 
